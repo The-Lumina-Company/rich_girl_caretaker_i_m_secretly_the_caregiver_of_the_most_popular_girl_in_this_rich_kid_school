@@ -1,1 +1,9 @@
-# rich_girl_caretaker_i_m_secretly_the_caregiver_of_the_most_popular_girl_in_this_rich_kid_school
+# Rich Girl Caretaker: I'm Secretly the Caregiver of the Most Popular Girl in This Rich Kid School (2026) Türkçe Çeviri
+
+## Çeviri Ekibi
+
+| Görev | İsim |
+|---|---|
+| **Çevirmen** | --- |
+| **Editör** | --- |
+| **Son Kontrol** | --- |
